@@ -1,1 +1,2 @@
-# up221-emily
+# Hi, I'm Emily!
+I am a Bay Area native and in my spare time, I enjoy exploring new food spots, cooking, and hiking. I am a second-year MURP focusing on community economic development and housing. Prior to attending UCLA, I worked in environmental planning analyzing the environmental impacts of new housing and transportation projects. I chose to pursue a degree in urban planning to better understand barriers to building housing and identify opportunities to enhance housing policies to streamline development. 
